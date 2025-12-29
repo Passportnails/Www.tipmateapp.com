@@ -1,1 +1,0 @@
-# Www.tipmateapp.com
